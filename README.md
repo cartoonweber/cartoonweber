@@ -31,5 +31,4 @@
 
 
 - � How to reach me </br>
-Email: rangerockdev@gmail.com</br>
-Skype: live:.cid.53201f5e5de3299c</br>
+Email: minkbuckstar@gmail.com</br>
